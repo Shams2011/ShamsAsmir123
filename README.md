@@ -6,7 +6,7 @@
 
  I’m looking to collaborate on open-source projects related to AI, web development, and data science.
 
- You can reach me via email at shamsasmir210@jmail.com.
+ You can reach me via email at shamsasmir210@gmail.com.
 
  Pronouns: He/Him
 
